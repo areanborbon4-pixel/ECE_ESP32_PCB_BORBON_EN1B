@@ -1,4 +1,4 @@
-⁰# Arean N.Borbon
+6# Arean N.Borbon
      
            **About me**
           im Arean borbon
