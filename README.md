@@ -12,8 +12,15 @@
 **Food**
 
 –skabetche
+
 –pork sisig
+
 –adobo with potatoes 
+ 
+
+    Projects 
+making teaser gun
+schematic 
 
 
 
