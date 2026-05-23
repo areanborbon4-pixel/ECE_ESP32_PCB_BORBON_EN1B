@@ -50,16 +50,7 @@
 |•skabetche | wintermelon  |     Blue  |
 |•pork sisig| strawberry   |   Green   |
 |•  adobo   |   matcha     |  Purple   |
-
-|     skils         |     level    |   
-|-------------------|--------------|
-|•       C++        |   beginner   |  
-|•      Arduino     |   beginner   | 
-|•     PCB Design   |   beginner   | 
-|• Schematic design |   beginner   |
-
-
-        ** Projects**
+** Projects**
  
             Teaser gun
 
@@ -69,10 +60,15 @@
 
        ESPE32 expansion board
 
-       Arduino LED Blinking 
-         using tingkercad
+|     skils         |     level    |   
+|-------------------|--------------|
+|•       C++        |   beginner   |  
+|•      Arduino     |   beginner   | 
+|•     PCB Design   |   beginner   | 
+|• Schematic design |   beginner   |
 
 
+        
           
 
 
