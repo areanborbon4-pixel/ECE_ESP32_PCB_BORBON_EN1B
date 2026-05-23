@@ -2,7 +2,7 @@
 
    20 years old🤪
 
-sicsican rampanuno
+Sicsican,Rampanu, Puerto Princesa City 
 
 
 
@@ -15,7 +15,7 @@ My hobies are:
 
 badminton with niggas🏸
 
-🥘cooking,baking 🥨🍪
+🥘 cooking,baking 🥨🍪
 
 
 ** BSCE Fullbright college **
