@@ -44,7 +44,7 @@
 |•       C++        |   beginner   |  
 |•      Arduino     |   beginner   | 
 |•     PCB Design   |   beginner   | 
-|• Schematic design |              |
+|• Schematic design |   beginner   |
 
 
         **🔌 Projects🖥️**
