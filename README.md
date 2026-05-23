@@ -10,8 +10,8 @@
      ** BSELE Fullbright college **
            
 **Contacts**
-
--Email:areanborbon4@gmail.com
+Cellphone no.:09297276227
+Email:areanborbon4@gmail.com
 
          
 
@@ -29,15 +29,16 @@
 
 
 
-      My favourite foods are;🤷🏻‍♀️
+      **My favourite foods are;🤷🏻‍♀️**
 
              skabetche
 
            pork sisig
 
          adobo with potatoes 
+
  
- 
+      **My favourite colors are**
 
          🔌 Projects🖥️
  
