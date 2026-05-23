@@ -36,7 +36,7 @@
 
       eating so much food
 
-      badminton with niggas
+      badminton with my brother 
    
        cooking,baking 
 
