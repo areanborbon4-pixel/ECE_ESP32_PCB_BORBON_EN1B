@@ -1,33 +1,34 @@
 #🙋🏻‍♀️I am Arean N.Borbon🧏🏻‍♀️🧔🏻‍♀️
 
-   20 years old🤪
-  currently a student of
+     20 years old🤪
+
+   currently a student of
 ** BSCE Fullbright college **
 
 Sicsican,Rampanu, Puerto Princesa City 
 
 
 
-My hobies are;
+      My hobies are;
 
 
-⚽Playing Futsal
+     ⚽Playing Futsal
 
-🍉eating so much food🍱
+  🍉eating so much food🍱
 
-badminton with niggas🏸
+   badminton with niggas🏸
 
-🥘 cooking,baking 🥨🍪
+    🥘 cooking,baking 🥨🍪
 
 
 
-my favourite foods are;
+    My favourite foods are;
 
-–skabetche
+         –skabetche
 
-–pork sisig
+         –pork sisig
 
-–adobo with potatoes 
+     –adobo with potatoes 
  
 
     Projects
