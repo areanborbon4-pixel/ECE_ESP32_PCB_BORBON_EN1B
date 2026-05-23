@@ -1,11 +1,19 @@
-      #🙋🏻‍♀️I am Arean N.Borbon🧏🏻‍♀️🧔🏻‍♀️
-
-           20 years old🤪
+# Arean N.Borbon
+     
+           **About me**
+          im Arean borbon
+          20 years old🤪
          Sicsican,Rampanu,
       📍Puerto Princesa City 
 
        currently a student of
      ** BSELE Fullbright college **
+           
+**Contacts**
+
+-Email:areanborbon4@gmail.com
+
+         
 
 
 
