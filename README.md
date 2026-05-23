@@ -1,4 +1,4 @@
-# Arean N.Borbon
+⁰# Arean N.Borbon
      
            **About me**
           im Arean borbon
@@ -60,15 +60,17 @@
        Arduino LED Blinking 
          using tingkercad
 
-            "ISAIAH 30:18"
-Be patient, sometimes God makes us wait longer because the blessing is bigger
- 
+
+          
 
 
          🔮My future goalsl📌
+
+
        i would say to become a
         successful engineer and
- to repay all hardwork of my parents 
+         to repay all hardwork 
+            of my parents 
   
 
 
