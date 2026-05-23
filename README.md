@@ -39,7 +39,13 @@
 |•pork sisig| strawberry   |  🍃 Green |
 |•  adobo   |   matcha     | 👾 Purple |
 
-     
+|     skils         |     level    |   
+|-------------------|--------------|
+|•       C++        |   beginner   |  
+|•      Arduino     | strawberry   | 
+|•     PCB Design   |   matcha     | 
+|• Schematic design |              |
+
 
         **🔌 Projects🖥️**
  
@@ -53,7 +59,23 @@
 
        Arduino LED Blinking 
          using tingkercad
-   
+
+            "ISAIAH 30:18"
+Be patient, sometimes God makes us wait longer because the blessing is bigger
+ 
+
+
+         🔮My future goalsl📌
+       i would say to become a
+        successful engineer and
+ to repay all hardwork of my parents 
+  
+
+
+           🪷dream big, 
+           live your life 
+       be the happiest person
+          everysingle day
         
              
 
