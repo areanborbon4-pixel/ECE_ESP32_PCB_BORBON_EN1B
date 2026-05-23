@@ -9,9 +9,9 @@
        currently a student of
      ** BSELE Fullbright college **
            
-**Contacts**
-Cellphone no.:09297276227
-Email:areanborbon4@gmail.com
+          **Contacts**
+     Cellphone no.:09297276227
+    E-mail📭:areanborbon4@gmail.com
 
          
 
