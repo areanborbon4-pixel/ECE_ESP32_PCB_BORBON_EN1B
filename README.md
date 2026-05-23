@@ -1,7 +1,6 @@
     #🙋🏻‍♀️I am Arean N.Borbon🧏🏻‍♀️🧔🏻‍♀️
 
-     20 years old🤪
-
+         20 years old🤪
        currently a student of
      ** BSCE Fullbright college **
 
