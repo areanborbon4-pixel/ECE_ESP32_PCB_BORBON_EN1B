@@ -1,7 +1,7 @@
-    #🙋🏻‍♀️I am Arean N.Borbon🧏🏻‍♀️🧔🏻‍♀️
+      #🙋🏻‍♀️I am Arean N.Borbon🧏🏻‍♀️🧔🏻‍♀️
 
-         20 years old🤪
-        Sicsican,Rampanu,
+           20 years old🤪
+         Sicsican,Rampanu,
       📍Puerto Princesa City 
 
        currently a student of
@@ -9,11 +9,11 @@
 
 
 
-         My hobies are;
+           My hobies are;
 
-       ⚽Playing Futsal
+         ⚽Playing Futsal
 
-     🍉eating so much food🍱
+      🍉eating so much food🍱
 
       badminton with niggas🏸
    
@@ -21,21 +21,21 @@
 
 
 
-    My favourite foods are;🤷🏻‍♀️
+      My favourite foods are;🤷🏻‍♀️
 
-         –skabetche
+             skabetche
 
-         –pork sisig
+           pork sisig
 
-        –adobo with potatoes 
+         adobo with potatoes 
  
  
 
-        🔌 Projects🖥️
+         🔌 Projects🖥️
  
-       making teaser gun🔫
+        making teaser gun🔫
 
-       schematic 
+            schematic 
 
 
 
