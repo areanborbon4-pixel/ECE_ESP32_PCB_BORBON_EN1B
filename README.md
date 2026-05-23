@@ -32,7 +32,7 @@ Email:areanborbon4@gmail.com
       **My favourite foods are;🤷🏻‍♀️**
 
               
-|   foods   |   drinks     |    color  |   
+|foods   |drinks     |color  |   
 _______________________________________|
 | skabetche | wintermelon  |  🌊 Blue  |
 |pork sisig | strawberry   |  🍃 Green |
