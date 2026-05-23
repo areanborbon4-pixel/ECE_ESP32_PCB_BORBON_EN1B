@@ -2,7 +2,7 @@
 
          20 years old🤪
        currently a student of
-     ** BSCE Fullbright college **
+     ** BSELE Fullbright college **
 
          Sicsican,Rampanu,
         Puerto Princesa City 
@@ -21,7 +21,7 @@
 
 
 
-    My favourite foods are;
+    My favourite foods are;🤷🏻‍♀️
 
          –skabetche
 
@@ -31,9 +31,9 @@
  
  
 
-         Projects
+        🔌 Projects🖥️
  
-       making teaser gun
+       making teaser gun🔫
 
        schematic 
 
