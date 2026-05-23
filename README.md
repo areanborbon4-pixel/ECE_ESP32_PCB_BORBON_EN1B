@@ -29,14 +29,14 @@ Email:areanborbon4@gmail.com
 
 
 
-      **My favourite foods are;🤷🏻‍♀️**
+      **My favourite foods are🤷🏻‍♀️**
 
               
 |   foods   |   drinks     |    color  |   
 |___________|______________|___________|
-| skabetche | wintermelon  |  🌊 Blue  |
-| pork sisig| strawberry   |  🍃 Green |
-|   adobo   |   matcha     | 👾 Purple |
+|•skabetche | wintermelon  |  🌊 Blue  |
+|•pork sisig| strawberry   |  🍃 Green |
+|•  adobo   |   matcha     | 👾 Purple |
 
      
 
